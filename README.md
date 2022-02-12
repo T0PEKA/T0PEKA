@@ -1,5 +1,5 @@
 ## Spark Knight Klee of the Knights of Favonius, reporting for duty!
-hi welcome to my stupid github! there's not much to say abt me so i'll just give a brief little intro? 
+hi welcome to my stupid github! there's not much to say abt me
 </br>u can see more info later but this is all u need to know
 - my name is topeka but alot of people call me toby! 
 - he/they (they/them preferably)
