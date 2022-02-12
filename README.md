@@ -7,6 +7,9 @@ hi welcome to my stupid github! there's not much to say abt me
 - don't take me seriously unless i tell you that it is!
 - i don't use tone tags. if you need it, please tell me
 </br></br>
+- i'm into **genshin impact**, ddlc, deltarune, **danganronpa**, 
+</br>**object shows (mainly bfb)**, cookie run ovenbreak
+</br></br>
 - if i make a genuinely bad take,  talk to me about it **politely**...
 - if you choose not to be polite and insult me i will not listen to u. 
 </br>i dont care how right ur opinion is i will not listen
@@ -16,5 +19,3 @@ hi welcome to my stupid github! there's not much to say abt me
 ### What do you mean that's child labor? What even is child labor?
 - i am VERY talkative!! sorry if this gets annoying.
 - no seriously i will literally not shut up. ever
-- i'm into **genshin impact**, ddlc, deltarune, **danganronpa**, 
-</br>**object shows (mainly bfb)**, cookie run ovenbreak
