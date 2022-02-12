@@ -1,4 +1,6 @@
-### Spark Knight Klee of the Knights of Favonius, reporting for duty!
+# Spark Knight Klee of the Knights of Favonius, reporting for duty!
+![png](https://cdn.discordapp.com/attachments/802949060473389066/942064437777535066/unknown.png)
+### Do you wanna go fishblasting with me?
 hi welcome to my stupid github! there's not much to say abt me
 </br>u can see more info later but this is all u need to know
 - my name is topeka! alot of people call me toby tho
