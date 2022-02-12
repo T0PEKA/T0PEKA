@@ -4,8 +4,7 @@ hi welcome to my stupid github! there's not much to say abt me
 - my name is topeka! alot of people call me toby tho
 - he/they (they/them preferably) use she/her and i will commit murder
 - i have alot of controversial takes! have mercy on me docks
-- don't take me seriously unless i say so! 
-</br>meme until proven serious
+- don't take me seriously unless i tell you that it is!
 - i don't use tone tags. if you need it, please tell me
 
 ### What do you mean that's child labor? What even is child labor?
