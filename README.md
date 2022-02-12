@@ -1,4 +1,4 @@
-## Spark Knight Klee of the Knights of Favonius, reporting for duty!
+### Spark Knight Klee of the Knights of Favonius, reporting for duty!
 hi welcome to my stupid github! there's not much to say abt me
 </br>u can see more info later but this is all u need to know
 - my name is topeka but alot of people call me toby! 
@@ -7,7 +7,7 @@ hi welcome to my stupid github! there's not much to say abt me
 - don't take me seriously unless i say so! meme until proven serious
 - i don't use tone tags. if you need it, please tell me
 
-## What do you mean that's child labor? What even is child labor?
+### What do you mean that's child labor? What even is child labor?
 - i am VERY talkative!! sorry if this gets annoying. im just rlly passionate abt the things i talk about
 - no seriously once i start talking about something i like i will literally not shut up. ever
 - i'm into **genshin impact**, ddlc, deltarune, **danganronpa**, **object shows (mainly bfb)**, cookie run ovenbreak
