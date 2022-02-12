@@ -15,4 +15,4 @@ hi welcome to my stupid github! there's not much to say abt me
 - i am also obsessed with color theory.  idk why bc it's just colors..
 - if i make a genuinely bad take,  talk to me about it **politely**...
 - if you choose not to be polite and insult me i will not listen to u. 
-</br>i dont care how right ur opinion is
+</br>i dont care how right ur opinion is i will not listen
