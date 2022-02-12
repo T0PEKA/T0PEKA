@@ -7,6 +7,7 @@ hi welcome to my stupid github! there's not much to say abt me
 - don't take me seriously unless i tell you that it is!
 - i don't use tone tags. if you need it, please tell me
 </br></br>
+### What do you mean that's child labor? What even is child labor?
 - i'm into **genshin impact**, ddlc, deltarune, **danganronpa**, 
 </br>**object shows (mainly bfb)**, cookie run ovenbreak
 </br></br>
