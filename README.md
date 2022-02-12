@@ -1,11 +1,9 @@
 ### Spark Knight Klee of the Knights of Favonius, reporting for duty!
 hi welcome to my stupid github! there's not much to say abt me
 </br>u can see more info later but this is all u need to know
-- my name is topeka
-</br>alot of people call me toby tho! 
+- my name is topeka >alot of people call me toby tho! 
 - he/they (they/them preferably)
-- i have alot of controversial takes! 
-</br>have mercy on me docks
+- i have alot of controversial takes! have mercy on me docks
 - don't take me seriously unless i say so! 
 </br>meme until proven serious
 - i don't use tone tags. if you need it, please tell me
