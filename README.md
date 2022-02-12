@@ -15,5 +15,4 @@ hi welcome to my stupid github! there's not much to say abt me
 - if you choose not to be polite and insult me i will not listen to u. 
 </br>i dont care how right ur opinion is i will not listen
 
-
 </br></br>
