@@ -3,8 +3,10 @@ hi welcome to my stupid github! there's not much to say abt me
 </br>u can see more info later but this is all u need to know
 - my name is topeka but alot of people call me toby! 
 - he/they (they/them preferably)
-- i have alot of controversial takes! have mercy on me docks
-- don't take me seriously unless i say so! meme until proven serious
+- i have alot of controversial takes! 
+</br>have mercy on me docks
+- don't take me seriously unless i say so! 
+</br>meme until proven serious
 - i don't use tone tags. if you need it, please tell me
 
 ### What do you mean that's child labor? What even is child labor?
