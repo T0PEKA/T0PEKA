@@ -18,4 +18,3 @@ hi welcome to my stupid github! there's not much to say abt me
 - no seriously i will literally not shut up. ever
 - i'm into **genshin impact**, ddlc, deltarune, **danganronpa**, 
 </br>**object shows (mainly bfb)**, cookie run ovenbreak
-- i am also obsessed with color theory.  idk why bc it's just colors..
